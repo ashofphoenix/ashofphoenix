@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Ashish Bhatt @ashofphoenix
+- 🥷🏾 Hi, I’m Ashish Bhatt @ashofphoenix
 - 👀 I’m interested in remote opportunities
 - 🌱 I’m currently dibbing ML & AI
 - 💞️ I’m looking to collaborate on challenging projects
